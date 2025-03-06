@@ -1,6 +1,6 @@
 # Hey there! I'm k1ratsu 👋
 
-## When I have an idea, I like to turn it into reality
+## When I have an idea, I like to turn it into reality :)
 
 **About me:**
 - FR🥐
