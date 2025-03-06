@@ -1,13 +1,13 @@
-## Hey there! I'm k1ratsu 👋
+# Hey there! I'm k1ratsu 👋
 
-# When I have an idea, I like to turn it into reality
+## When I have an idea, I like to turn it into reality
 
-About me:
+**About me:**
 - FR🥐
 - 2006 
 - dragons >>>
 
-*You can reach me on Discord by messaging @k1ratsu*
+*You can reach me on Discord by messaging @k1ratsu.*
 
 
 
