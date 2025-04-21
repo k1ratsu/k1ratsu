@@ -1,11 +1,14 @@
-# Hey there! I'm k1ratsu 👋
+# Hey there! I'm k1ratsu
 
-## When I have an idea, I like to turn it into reality :)
+## I wasn't born to be a secondary character
+<br>
 
 **About me:**
-- FR🥐
+- French
 - 2006 
-- dragons >>>
+- When I have an idea, I like to turn it into reality
+<br>
+
 
 *You can reach me on Discord by messaging @k1ratsu.*
 
