@@ -1,6 +1,6 @@
 # Hey there! I'm k1ratsu
 
-## I wasn't born to be a secondary character
+## I wasn't born to be a background character
 <br>
 
 **About me:**
